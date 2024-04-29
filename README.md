@@ -13,3 +13,6 @@
 
 
 https://www.coderutil.com/
+
+##Ai资源
+https://ai-big-bang.feishu.cn/wiki/XYpPwRnpgihcwjkRSKqcygz2nHf
